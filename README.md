@@ -1,1 +1,0 @@
-# Ki-isel-bilgi-Kodluyoruz
